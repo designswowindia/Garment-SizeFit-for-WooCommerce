@@ -109,9 +109,12 @@ Online apparel stores face a critical fulfilment challenge: customers ordering g
 ## 👤 Source
 
 **Author**   : Akhilesh Maurya  
+
 **Company**  : https://designswow.com  
+
 **Emails**   : info@designswow.com | designswowindia@gmail.com
-**Download** : 
+
+**Download** : https://drive.google.com/file/d/1PkTKuE5Y94lxdJaxUhorvW3Gcu9Gfv-h/view?usp=sharing
 
 ---
 
